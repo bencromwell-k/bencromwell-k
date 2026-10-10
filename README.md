@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-[bencromwell](https://github.com/bencromwell)'s Krystal GitHub.
+[bencromwell](https://github.com/bencromwell)'s Krystalline GitHub.
